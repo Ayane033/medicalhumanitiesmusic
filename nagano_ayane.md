@@ -22,3 +22,9 @@ A similar work with a comparable tone and message is [*Extraordinary Attorney Wo
 Both Aya and Woo Young-woo fall outside conventional ideas of what is “normal,” but each finds her own way to engage with the world and gently challenge the biases around her. Their stories show that living with illness or disability is not a misfortune, but one of many valid ways of being. These works offer powerful messages about empathy, inclusion, and embracing diversity in human life.
 
 <img src="./nagano_ayane_img.png" alt="description" style="width:40%;" />
+
+# 나의 장례식 플레이리스트
+
+[erik satie – gymnopédie no. 1](https://www.youtube.com/watch?v=S-Xm7s9eGxU)
+저는 술을 좋아하고, 저의 주변 사람들 또한 술과 맛있는 음식을 사랑하는 사람들이 많습니다. 그래서 제 장례식은 단순히 슬픈 자리가 아니라, 맛있는 음식과 술을 즐기며, 제가 사랑했던 분위기 속에서 함께 시간을 보내는 자리가 되었으면 합니다.특히 저는 외인을 좋아하는데, 와인바에서 나올것 같은  클래식 음악을 틀어두면, 사람들이 저를 기억하며 조용히, 그리고 따뜻하게 미소 지을 수 있지 않을까 생각했습니다. 제가 선택한 이 곡은, 와인잔을 기울이며 나누는 대화, 그리고 사랑하는 사람들과 함께하는 마지막 순간을 더욱 아름답게 만들어줄 거라 믿습니다. 슬픔 속에서도,제가 좋아했던 사람들끼리 좋은 시간을 보내주기를 바랍니다.
+
